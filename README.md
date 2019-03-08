@@ -13,7 +13,7 @@ xxxxxxxx
 
 [CHORUS]
 call me a moth - with no reason to die
-flying to fire - why can't you see my eyes (oh right)
+flying to fire - why can't you see my eyes 
 shining in a different spectrum of light
 blink and i'm gone, i wasn't a lie
 i was apart, i was so distant
@@ -21,10 +21,19 @@ too much involved in your meddling business
 not really regret but I was your constant threat
 I was your constant threat
 I was your constant threat rou
+(oh right)
+are you out of breath yeah
+are you out of breath
+are you out of breath yeah
 
 [VERSE2]
 
 xxxxxxxxx
+
+
+i was alive, i was so destined
+too much involvement meant no business 
+go electric
 
 [CHORUS]
 call me a moth - with no reason to die
