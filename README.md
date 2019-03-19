@@ -32,8 +32,18 @@ xxxxxxxxx
 
 
 i was alive, i was so destined
-too much involvement meant no business 
-go electric
+turning electric 
+veins on my neck symptom of anger
+too much involvement meant no flex 
+
+seeking approval is it your business
+feeling uptight, couldn't care less 
+
+again with the bash, can't cope 
+then reach for your stash
+
+
+
 
 [CHORUS]
 call me a moth - with no reason to die
