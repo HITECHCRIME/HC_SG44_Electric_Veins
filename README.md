@@ -30,17 +30,17 @@ are you out of breath yeah
 
 xxxxxxxxx
 
-
 i was alive, i was so destined
 turning electric 
 veins on my neck symptom of anger
 too much involvement meant no flex 
-
 seeking approval is it your business
 feeling uptight, couldn't care less 
-
+i'd be your first offender (i will be your first offender)
 again with the bash, can't cope 
 then reach for your stash
+doing what you can do get yourself in order
+
 
 
 
