@@ -5,11 +5,11 @@ Beat: (FREE) GHOSTEMANE Type Beat -"Evil" (Prod.Mileex) https://www.youtube.com/
 
 [HOOK]
 
-xxxxxxxxxx
+xxxxxxxxxx (?)
 
 [VERSE1]
 
-xxxxxxxx
+xxxxxxxx (?)
 
 [CHORUS]
 call me a moth - with no reason to die
